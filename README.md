@@ -3,7 +3,7 @@
 
 - 🌱 I’m currently learning **Course**
 
-- 👨‍💻 All of my projects are available at [www.linkedin.com/in/youssouf-zadjaoui-8192a2401](www.linkedin.com/in/youssouf-zadjaoui-8192a2401)
+- 👨‍💻 All of my projects are available at [www.linkedin.com/in/youssouf-zadjaoui-8192a2401](https://www.linkedin.com/in/mohammed-youssouf-zadjaoui-5b2480408?utm_source=share_via&utm_content=profile&utm_medium=member_android)
 
 - 📫 How to reach me **zadjaouiyoucef2007@gmail.com**
 
